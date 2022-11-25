@@ -1,1 +1,1 @@
-alx is fustrating, but always do the hard thing 
+always do the hard things
